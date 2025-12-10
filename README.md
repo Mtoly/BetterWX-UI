@@ -77,6 +77,8 @@
 
  - 地址2：[https://wwtt.lanzn.com/b0pmh8e1i?请输入密码：52pj](https://wwtt.lanzn.com/b0pmh8e1i?请输入密码：52pj)
 
+ - linux 微信 x86_64 4.1.0.13 防撤回 + 多开 [https://www.123865.com/s/734rVv-bsH4H?pwd=7kc2](https://www.123865.com/s/734rVv-bsH4H?pwd=7kc2#)
+
 ## 💰 打赏
 
 <p align="center">👇如果你喜欢我的项目，欢迎打赏！👇</p>
